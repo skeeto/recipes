@@ -45,3 +45,4 @@ With 16 biscuits, each will be 200 calores.
 
 * [Pie Crust](pie-crust.md)
 * [Claire Makes the Flakiest Buttermilk Biscuits](https://www.youtube.com/watch?v=lN9Gt8EoZAc)
+* [Sweet Potato Biscuits](https://www.youtube.com/watch?v=tSX7nA2a2n8)
