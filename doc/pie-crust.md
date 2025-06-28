@@ -8,7 +8,7 @@ Makes two pie crusts, i.e. a top and a bottom.
 * 7tbsp water
 * 1tbsp vinegar
 
-Unwrap butter and place in freezer for 30-60 minutes. Mix try ingredients
+Unwrap butter and place in freezer for 30-60 minutes. Mix dry ingredients
 in a large bowl. Shred the cold butter into the large bowl, tossing in the
 flour with a fork as needed to keep the butter from sticking to itself.
 
